@@ -30,8 +30,8 @@ I believe in learning in public, building with communities, and contributing to 
 ---
 
 ### 📫 Let’s Connect
-- Twitter: [@Ishakxw3](https://twitter.com/realisk)  
-- Discord: `@Realisk`  
+- Twitter: [@Realiskx](https://twitter.com/realisk)  
+- Discord: `@Ishakonchain`  
 - Email: coming soon...
 
 ---
